@@ -13,7 +13,7 @@ Frank the function had to work overtime yesterday because his clients kept sendi
    *{{**...beepBeep, BeepBeep...BeepBeep, BeepBeep!**}}*
 
 
-"No...tried to warn them...", Frank mumbled in his sleep. "...bad route...blocked request...not...function", he ccontinued muttering, growing more agitated in his dream state. Frank started so intensely from the current scene playing in his mind, that he woke himself up from the dreary retelling of his previous work day.
+"No...tried to warn them...", Frank mumbled in his sleep. "...bad route...blocked request...not...function", he continued muttering, growing more agitated in his dream state. Frank started so intensely from the current scene playing in his mind, that he woke himself up from the dreary retelling of his previous work day.
 
 Glad to be out of that nightbore, Frank decided to get his day started early even though his alarm hadn't sounded yet. He got up and took an extra long shower to wash away his dreams and reset on a positive note for his new day at work.
 
