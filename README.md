@@ -18,7 +18,7 @@ Frank the function had to work overtime yesterday because his clients kept sendi
 Glad to be out of that nightbore, Frank decided to get his day started early even though his alarm hadn't sounded yet. He got up and took an extra long shower to wash away his dreams and reset on a positive note for his new day at work.
 As he was drying off, Frank heard a request ping from his phone. He checked it, saw the time, and instantly started to panic. He was late for work, he wasn't even dressed and already had his first request for a delivery.
 
-Throwing on the first shirt and pair of pants he grabbed, frank stummbled down the stairs to meet his roomate just coming home from her night at work. "Frank!", she exclaimed. "one, what are you still doing here? And two, why haven't you done any of you chores?". Frieda continued, "You promised you would do them after work yesterday."
+Throwing on the first shirt and pair of pants he grabbed, Frank stummbled down the stairs to meet his roomate just coming home from her night at work. "Frank!", she exclaimed. "one, what are you still doing here? And two, why haven't you done any of you chores?". Frieda continued, "You promised you would do them after work yesterday."
 
 "I know, I know, I'm sorry", Frank stammered. "It's just that, my clients made a LOT of bad requests yesterday, and I had to work a double shift trying to fetch all of their deliveries...so I got home really late and exhausted, so exhausted I passed out right away and slept through my alarm.", he continued as he grabbed a bagel for the road. "SsOoo, long story short, I had bad requests all day, and so I couldn't fulfill my promise to you. And now I have to go fetch this delivery request."
 
