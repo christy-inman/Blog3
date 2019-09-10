@@ -4,13 +4,13 @@
 **The Promise Chain: A Short Story**
 
 
-*"beepBeep, beepBeep...beepBeep, beepBeep..."*
+     *{{beepBeep, beepBeep...beepBeep, beepBeep...}}*
 
 
 Frank the function had to work overtime yesterday because his clients kept sending him down bad routes. He attemptedhid deliveries until late in the night when the clients finally stopped making requests. This caused such exhaustion that he slept through his alarm this morning.
 
 
-*"...beepBeep, BeepBeep...BeepBeep, BeepBeep!"*
+    *{{...beepBeep, BeepBeep...BeepBeep, BeepBeep!}}*
 
 
 "No...tried to warn them...", Frank mumbled in his sleep. "...bad route...blocked request...not...function", he ccontinued muttering, growing more agitated in his dream state. Frank started so intensely from the current scene playing in his mind, that he woke himself up from the dreary retelling of his previous work day.
@@ -36,7 +36,7 @@ Then, since he was finished with his chores, Frank decided to preheat the oven a
 Then, once the oven was hot, Frank put the muffins in to bake. He got ready for bed while he waited for the oven timer to ding.
 
 
-*{{**DING**}}*
+   *{{**DING**}}*
 
 
 Then, Frank finished his promise chain by putting the warm muffins on the counter for Frieda to find and enjoy with her coffee before she heads to work.
