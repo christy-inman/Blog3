@@ -4,10 +4,10 @@
 ### The Promise Chain: A Short Story
 
 
-  *{{**beepBeep, beepBeep...beepBeep, beepBeep...**}}*
+   *{{**beepBeep, beepBeep...beepBeep, beepBeep...**}}*
 
 
-Frank the function had to work overtime yesterday because his clients kept sending him down bad routes. He attemptedhid deliveries until late in the night when the clients finally stopped making requests. This caused such exhaustion that he slept through his alarm this morning.
+Frank the function had to work overtime yesterday because his clients kept sending him down bad routes. He attempted his deliveries until late in the night when the clients finally stopped making requests. This caused such exhaustion that he slept through his alarm this morning.
 
 
    *{{**...beepBeep, BeepBeep...BeepBeep, BeepBeep!**}}*
@@ -43,4 +43,7 @@ Then, Frank finished his promise chain by putting the warm muffins on the counte
 
 After a successful day of fetching and flawlessly fulfilling his promises, Frank fell fast asleep. And rested calmly free from worry or sttress dreams, all night, until his alarm softly sounded again.
 
-[[The End]]
+**[[THE END]]**
+
+
+
