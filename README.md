@@ -16,7 +16,6 @@ Frank the function had to work overtime yesterday because his clients kept sendi
 "No...tried to warn them...", Frank mumbled in his sleep. "...bad route...blocked request...not...function", he continued muttering, growing more agitated in his dream state. Frank started so intensely from the current scene playing in his mind, that he woke himself up from the dreary retelling of his previous work day.
 
 Glad to be out of that nightbore, Frank decided to get his day started early even though his alarm hadn't sounded yet. He got up and took an extra long shower to wash away his dreams and reset on a positive note for his new day at work.
-
 As he was drying off, Frank heard a request ping from his phone. He checked it, saw the time, and instantly started to panic. He was late for work, he wasn't even dressed and already had his first request for a delivery.
 
 Throwing on the first shirt and pair of pants he grabbed, frank stummbled down the stairs to meet his roomate just coming home from her night at work. "Frank!", she exclaimed. "one, what are you still doing here? And two, why haven't you done any of you chores?". Frieda continued, "You promised you would do them after work yesterday."
